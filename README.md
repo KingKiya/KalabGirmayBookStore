@@ -1,0 +1,3 @@
+Kalab Girmay Book Store. With a wide selection of both new and used books, Kalab Girmay Book Store is one of the best bookstores you can find.
+Kalab Girmay Book Store offers the latest and greatest titles in all grade 8 of books. From fiction & educational texts, Kalab Girmay Book Store provides a vast selection of books for readers of all ages.
+The Kalab Girmay Book Store's shelves stand tall, Customers always in for a haul, Stocking books of many kind, This store will blow your mind! Reading is essential to life, This store will open your eyes, From adventures to romance, You'll be devouring pages in no time. For knowledge and relaxation, The Book Store has your selection, So come in, pick what you need,
